@@ -1,2 +1,4 @@
-• <b>Assalomu Alekum</b>
-    •<i>Bot Yaratuvchi</b>
+• *Assalomu Alekum*
+    
+
+•<i>Bot Yaratuvchi</b>
