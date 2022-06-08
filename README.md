@@ -1,4 +1,4 @@
 • **Assalomu Alekum**
     
 
-• Bot Yaratuvchi
+• _[Bot Yaratuvchi](https://t.me/lifevOFF)_
