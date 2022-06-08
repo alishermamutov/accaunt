@@ -1,1 +1,1 @@
-• <b>Assalomu Alekum</>
+• <b>Assalomu Alekum</b>
